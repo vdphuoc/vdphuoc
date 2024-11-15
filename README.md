@@ -1,4 +1,4 @@
-👋 Hi, I’m D.
+👋 Hi, I’m Dan.
 ---
 
 😄 About me
