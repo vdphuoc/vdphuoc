@@ -7,7 +7,7 @@
 
 🌱 ...
 
-📫 Email: contact.mmoteam@gmail.com
+📫 Email: ...
 
 😄 Pronouns: He/Him
 
